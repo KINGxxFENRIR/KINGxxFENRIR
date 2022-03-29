@@ -2,7 +2,7 @@
 - 👀 I’m interested in Ligma
 - 🌱 I’m currently learning Balls
 - 💞️ I’m looking to collaborate on Jeff
-- 📫 How to reach me MyNameIsJeff@gmail.com
+- 📫 How to reach me udario2003@gmail.com
 
 <!---
 KINGxxFENRIR/KINGxxFENRIR is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
